@@ -10,7 +10,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 My contact:
     - Phone number: 613 790 2898
-    - Email: anhthybuidoan@gmail.com
+    - Email: anhthybuidoan@gmail.com or 
              bui00083@algonquincollege.com
 - 😄 Pronouns: Doan, Thy, Wendy, or T.
 
