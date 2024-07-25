@@ -13,5 +13,5 @@
     - Email: anhthybuidoan@gmail.com or 
              bui00083@algonquincollege.com
     - Linkedin: https://www.linkedin.com/in/anh-thy-422b35299/
-- 😄 Pronouns: You can call me Doan, Thy, Wendy, or T.
+- 😄 Pronouns: You can call me Doan.
 
